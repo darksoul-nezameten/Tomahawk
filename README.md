@@ -219,4 +219,4 @@ Tomahawk is offered as a full free version, with all features and updates includ
 Start your music journey today with Tomahawk. Experience the future of music listening with the **complete free version** — **download Tomahawk now!**
 
 ---
-**Last updated:** 2026-10-19 23:25:13 UTC
+**Last updated:** 2026-10-20 03:57:31 UTC
